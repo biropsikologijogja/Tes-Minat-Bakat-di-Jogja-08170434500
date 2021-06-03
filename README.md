@@ -1,4 +1,4 @@
-# Tes Minat Bakat di Jogja Manfaat dan Biaya | WhatsApp : 08170434500
+# Tes Minat Bakat di Jogja Manfaat dan Biaya Murah. Ini Tempatnya | WhatsApp : 08170434500
 Tes Minat Bakat di Jogja untuk penjurusan sekolah atau pekerjaan yang sesuai minat dan bakatnya dari Biro Psikologi Jogja Laksita Educare Yogyakarta
 
 ## Tes Minat Bakat dan Pengertiannya
